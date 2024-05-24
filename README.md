@@ -1,1 +1,1 @@
-I love Hayase yuuka
+I love Hayase Yuuka
